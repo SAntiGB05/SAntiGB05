@@ -92,7 +92,7 @@ Implementación de:
 
 ✉️ santigbttobi@gmail.com   
 📲 +57 3174186529    
-💼 https://www.linkedin.com/in/santiago-gonz%C3%A1lez-beltr%C3%A1n-80514629a/  
+💼 www.linkedin.com/in/santiago-gonzález00
 🌐 Proximamente...
  
 ---
